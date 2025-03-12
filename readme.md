@@ -1,2 +1,2 @@
 Hector Medina
-Mecanico
+Mecanico buena persona
